@@ -1,3 +1,3 @@
-# README.md
+ginakonda ;)
 
 hello I am sudatta
